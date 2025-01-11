@@ -1,5 +1,3 @@
-CAROLINE SPENCER
-
 **About me:**
 I am a recent graduate from the Masters of Biomedical and Health Informatics program at UNC Chapel Hill seeking a Data Analyst position.
 
